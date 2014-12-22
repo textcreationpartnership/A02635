@@ -35,3065 +35,329 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
+REgiae Maiestatis Priuilegio concessum est Thomae Hardingo Sacrae The•logiae Professori, vt Librum i
+1. TO M. IEVVEL.
+August. Contrà literas Petiliani Donatistae. Lib. 2. Cap. xcij.An non est ista vestra fallacia, sed 
+1. The Preface to the Catholike Reader touching the Sacrifice of the Masse.
 
-1. The disputation of Satan the Deuil with Luther against the Masse, truly reported out of Luthers owne Workes.
+    _ The disputation of Satan the Deuil with Luther against the Masse, truly reported out of Luthers owne Workes.
 
-1. The chiefe, and most common Argument, that the Protestantes make against the Sacrifice of the Masse.
+    _ The chiefe, and most common Argument, that the Protestantes make against the Sacrifice of the Masse.
 
-1. Solution.
+    _ Solution.
+
+1. Faultes escaped in printing.
 
 #####Body#####
+The wordes of M. Iewels Chalenge.IF any learned man of our Aduersaries, or if al the learned men tha
+    _ The wordes of M. Iewels Chalenge.
 
-1. The wordes of M. Iewels Chalenge.
+    _ The wordes of the Answer first made to this Chalenge. Of the Priestes auctoritie to offer vp Christe to his Father.
 
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
+    _ M. Iewels Replie.
 
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
+    _ Harding.
 
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
+    _ Iewel.
 
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
+    _ Harding.
 
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
+    _ Iewel.
 
-    _ VVhat is to be iudged of these Protestantes Martyrs.
+    _ Harding.
 
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
+    _ Iewel.
 
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
+    _ Harding.
 
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
+    _ These termes, Christ is offered vp to his Father vnder the formes of bread and wine truely and in dede, proued not to be of my priuate deuise.
 
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
+    _ Iewel.
 
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
+    _ Hardinge.
 
-1. The wordes of the Answer first made to this Chalenge. Of the Priestes auctoritie to offer vp Christe to his Father.
+1. The 2. Diuision.
 
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
+    _ The Ansvver.
 
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
+    _ Iewel.
 
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
+    _ Harding.
 
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
+      * Whether the Sacramentaries rob the Churche of her greatest treasure.
 
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
+1. The .3. Diuision.
 
-    _ VVhat is to be iudged of these Protestantes Martyrs.
+    _ The Ansvvere.
 
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
+    _ Iewel.
 
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
+    _ Harding.
 
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
+      * That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
 
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
+      * That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
 
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
+    _ Iewel.
 
-1. M. Iewels Replie.
+    _ Harding.
 
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
+      * The wordes of Consecration of the Sacrament, called by the name of prayer.
 
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
+1. The .4. Diuision.
 
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
+    _ The Ansvvere.
 
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
+    _ Iewel.
 
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
+    _ Harding.
 
-    _ VVhat is to be iudged of these Protestantes Martyrs.
+    _ Iewel.
 
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
+    _ Harding.
 
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
+    _ Iewel.
 
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
+    _ Harding.
 
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
+    _ Iewel.
 
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
+    _ Harding.
 
-1. Harding.
+    _ Iewel.
 
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
+    _ Harding.
 
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
+    _ Iewel.
 
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
+    _ Harding.
 
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
+    _ Iewel.
 
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
+    _ Harding.
 
-    _ VVhat is to be iudged of these Protestantes Martyrs.
+1. The 5. Diuision.
 
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
+    _ The Ansvver.
 
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
+    _ Iewel.
 
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
+    _ Harding.
 
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
+    _ Iewel.
 
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
+    _ Harding.
 
-1. Iewel.
+1. The .6. Diuision.
 
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
+    _ The Ansvvere.
 
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
+    _ Iewel.
 
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
+    _ Harding.
 
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
+    _ Iewel.
 
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
+    _ Harding.
 
-    _ VVhat is to be iudged of these Protestantes Martyrs.
+1. The .7. Diuision.
 
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
+    _ The Ansvvere.
 
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
+    _ Iewel.
 
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
+    _ Harding.
 
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
+    _ Iewel.
 
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
+    _ Harding.
 
-1. Harding.
+    _ Iewel.
 
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
+    _ Harding.
 
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
+    _ Iewel.
 
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
+    _ Harding.
 
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
+    _ Iewel.
 
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
+    _ Harding.
 
-    _ VVhat is to be iudged of these Protestantes Martyrs.
+1. The .8. Diuision.
 
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
+    _ The Ansvvere.
 
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
+    _ Iewel.
 
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
+    _ Harding.
 
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
+1. The .9. Diuision.
 
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
+    _ The Ansvvere.
 
-1. Iewel.
+    _ Iewel.
 
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
+    _ Harding.
 
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
+    _ Iewel.
 
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
+    _ Harding.
 
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
+    _ Iewel.
 
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
+    _ Harding.
 
-    _ VVhat is to be iudged of these Protestantes Martyrs.
+1. The .10. Diuision.
 
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
+    _ The Ansvver.
 
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
+    _ Iewel.
 
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
+    _ Harding.
 
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
+    _ Iewel.
 
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
+    _ Harding.
 
-1. Harding.
+1. The .11. Diuision.
 
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
+    _ The Ansvver.
 
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
+    _ Iewel.
 
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
+    _ Harding.
 
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
+    _ Iewel.
 
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
+    _ Harding.
 
-    _ VVhat is to be iudged of these Protestantes Martyrs.
+    _ Iewel.
 
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
+    _ Harding.
 
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
+    _ Iewel.
 
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
+    _ Harding.
 
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
+    _ Iewel.
 
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
+    _ Harding.
 
-1. Iewel.
+      * Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
 
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
+      * VVhat is to be iudged of these Protestantes Martyrs.
 
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
+    _ Iewel.
 
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
+    _ Harding.
 
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
+    _ Iewel.
 
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
+    _ Harding.
 
-    _ VVhat is to be iudged of these Protestantes Martyrs.
+1. The .12. Diuision.
 
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
+    _ The Ansvver.
 
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
+    _ Iewel.
 
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
+    _ Harding.
 
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
+    _ Iewel.
 
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
+    _ Harding.
 
-1. Harding.
+1. The .13. Diuision.
 
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
+    _ The Ansvver.
 
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
+    _ Iewel.
 
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
+    _ Harding.
 
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
+    _ Iewel.
 
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
+    _ Harding.
 
-    _ VVhat is to be iudged of these Protestantes Martyrs.
+      * That Melchisedeck offered, and made his sacrifice in bread and wine.
 
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
+    _ Iewel.
 
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
+    _ Harding.
 
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
+      * Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
 
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
+    _ Iewel.
 
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
+    _ Harding.
 
-1. These termes, Christ is offered vp to his Father vnder the formes of bread and wine truely and in dede, proued not to be of my priuate deuise.
+    _ Iewel.
 
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
+    _ Harding.
 
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
+1. The .14. Diuision.
 
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
+    _ The Ansvver.
 
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
+    _ Iewel.
 
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
+    _ Harding.
 
-    _ VVhat is to be iudged of these Protestantes Martyrs.
+    _ Iewel.
 
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
+    _ Harding.
 
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
+    _ Iewel.
 
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
+    _ Harding.
 
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
+    _ Iewel.
 
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
+    _ Harding.
 
-1. Iewel.
+    _ Iewel.
 
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
+    _ Harding.
 
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
+1. The .15. Diuision.
 
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
+    _ The Ansvver.
 
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
+    _ Iewel.
 
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
+    _ Harding.
 
-    _ VVhat is to be iudged of these Protestantes Martyrs.
+    _ Iewel.
 
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
+    _ Harding.
 
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
+      * Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
 
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
+      * That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
 
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
+    _ Iewel.
 
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
+    _ Harding.
 
-1. Hardinge.
+    _ Iewel.
 
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
+    _ Harding.
 
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
+      * A defence of the Canon of the Masse against M. Iewels scoffes.
 
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
+    _ Iewel.
 
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
+    _ Harding.
 
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
+    _ Iewel.
 
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. The Ansvver.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. The Ansvvere.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. The Ansvvere.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. The Ansvver.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. The Ansvvere.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. The Ansvvere.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. The Ansvvere.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. The Ansvvere.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. The Ansvver.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. The Ansvver.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. The Ansvver.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. The Ansvver.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. The Ansvver.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. The Ansvver.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Iewel.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
-
-1. Harding.
-
-    _ Whether the Sacramentaries rob the Churche of her greatest treasure.
-
-    _ That Christe at his Supper shewed him selfe a priest after the order of Melchisedek.
-
-    _ That the Prophecie of Malachie foresignifieth the Sacrifice of the Masse.
-
-    _ The wordes of Consecration of the Sacrament, called by the name of prayer.
-
-    _ Answer to M. Iewels tragical complaint of Iustice executed against heretiques in Quene Maries time.
-
-    _ VVhat is to be iudged of these Protestantes Martyrs.
-
-    _ That Melchisedeck offered, and made his sacrifice in bread and wine.
-
-    _ Why S. Paule spake not of the manner of Melchisedeks Sacrifice in bread and wine.
-
-    _ Testimonies for outward Priesthod, and for the Sacrifice to be made by the special Priestes.
-
-    _ That the Sacrifice is not to be consecrate and made, but onely by the Special Priestes.
-
-    _ A defence of the Canon of the Masse against M. Iewels scoffes.
+    _ Harding.
 
 #####Back#####
-AABra by M. Iewel reported to be S. Hilaries daughter.172. bThis worde (Al) in Scripture ofttimes adB.Baptisme.9. b.Baptisme doth not only signifie, but also exhibit wasshing of sinnes.83. b.Beza.17. C.CAluine defendeth it lawful to put Heretiques to Death.197. aThe Canon of the Masse defended againDDare, vsed for, offerre.69. a.The Daily Sacrifice, and a Daily Sacrifice.250. a.Dauid Georges carkaE.EMamuel the Iewes euangelical wedlocke to an other mans wyfe.175. aThe Euchariste maketh our bodieF.Howe vve see Christes woundes by Faith.200. a.The Faith of the Fathers of the old Testament, and oG.The fable of the Garnsey woman burnt for heresie.184. a.Of the woman of Garneseys childe falling oH.HEretiques robbe the Church of the greatest Treasure.44. a. bHeretikes punished by death.178. b & IM. Iewels obiectiō against the sacrifice taken of the basenesse of mākinde, answered.4. aM. IewelKKAterine the Nonne of Metz Peter Martyrs wyfe.175. aChristen men in general how they be Kinges and LLAvves to punish Heretikes by death.Henrici. 5. an. 2. 178. b. & sequent.Lyes impudent in M. Iewel.MMAN mortal and miserable admitted by God to great dignitie.3. b. & seq.In Manna Christ vnderstode.2NNIcolas Marsh of Dednam, hanged for felonie, made a Martyr by Foxe.181. aOOBlation double, one in spirite onely, and the other in the Sacrament.143. bFoure conditions of thePPAchymeres proueth not M. Ievvels purpose.14. bPatience in dying argueth not Martyrdom.186. aPachymR.REal presence.42. a. 72. a. 92. b. 105. b. 107. b. 111. b. 112. a.Real presence and Sacrifice auouSSAbbatum olde, and nevv. 8. b. 9. a Real Sacrifice in the Churche.11. b. 105. bThe substance of theT.TAble.225. b. 230. aTemple.9. bThinges signifying, and thinges signified called by the same names,V.VNbloudy Sacrifice.37. a. b. 41. a. 52. a. 77. a. b. 78. a. 102. a. 214. a. b. 227. a. b.Vnbloudy W.VVHy Christ gaue his body and bloud vnder the formes of bread and vvine.30. a.VViat beheadded.183.Y.Yoke fellovve man.168. a.
+
+1. THE TABLE.
+AABra by M. Iewel reported to be S. Hilaries daughter.172. bThis worde (Al) in Scripture ofttimes adB.Baptisme.9. b.Baptisme doth not only signifie, but also exhibit wasshing of sinnes.83. b.Beza.17. C.CAluine defendeth it lawful to put Heretiques to Death.197. aThe Canon of the Masse defended againDDare, vsed for, offerre.69. a.The Daily Sacrifice, and a Daily Sacrifice.250. a.Dauid Georges carkaE.EMamuel the Iewes euangelical wedlocke to an other mans wyfe.175. aThe Euchariste maketh our bodieF.Howe vve see Christes woundes by Faith.200. a.The Faith of the Fathers of the old Testament, and oG.The fable of the Garnsey woman burnt for heresie.184. a.Of the woman of Garneseys childe falling oH.HEretiques robbe the Church of the greatest Treasure.44. a. bHeretikes punished by death.178. b & IM. Iewels obiectiō against the sacrifice taken of the basenesse of mākinde, answered.4. aM. IewelKKAterine the Nonne of Metz Peter Martyrs wyfe.175. aChristen men in general how they be Kinges and LLAvves to punish Heretikes by death.Henrici. 5. an. 2. 178. b. & sequent.Lyes impudent in M. Iewel.MMAN mortal and miserable admitted by God to great dignitie.3. b. & seq.In Manna Christ vnderstode.2NNIcolas Marsh of Dednam, hanged for felonie, made a Martyr by Foxe.181. aOOBlation double, one in spirite onely, and the other in the Sacrament.143. bFoure conditions of thePPAchymeres proueth not M. Ievvels purpose.14. bPatience in dying argueth not Martyrdom.186. aPachymR.REal presence.42. a. 72. a. 92. b. 105. b. 107. b. 111. b. 112. a.Real presence and Sacrifice auouSSAbbatum olde, and nevv. 8. b. 9. a Real Sacrifice in the Churche.11. b. 105. bThe substance of theT.TAble.225. b. 230. aTemple.9. bThinges signifying, and thinges signified called by the same names,V.VNbloudy Sacrifice.37. a. b. 41. a. 52. a. 77. a. b. 78. a. 102. a. 214. a. b. 227. a. b.Vnbloudy W.VVHy Christ gaue his body and bloud vnder the formes of bread and vvine.30. a.VViat beheadded.183.Y.Yoke fellovve man.168. a.Liber iste lectus est & approbatus à viris sacrae Theologiae, & Ang•ici Idiomatis peritissimis, quib
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
